@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @YigaRichardDev  
 - 👀 I’m interested in Web Development  
-- 📫 How to reach me: yigarichardsnr@gmail.com  
+- 📫 How to reach me: hireyigarichard@gmail.com  
